@@ -1,0 +1,1 @@
+# Ludzie zwi¹zani z ruchJOW.pl
