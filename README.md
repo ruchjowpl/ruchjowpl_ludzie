@@ -1,1 +1,1 @@
-# Ludzie zwi¹zani z ruchJOW.pl
+# Ludzie zwiazani z ruchJOW.pl
